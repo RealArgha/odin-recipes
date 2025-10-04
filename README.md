@@ -7,4 +7,4 @@ After I finish building my project, I will end up making my base concepts strong
 
 
 Self-Notes( To see my progress :) because I end up procrastinating -_-):
-
+ Ok so I did end up finishing my smallest of the smallest project today itself, which is amazing, it was very easy and importantly I enjoyed the process while making it :).
